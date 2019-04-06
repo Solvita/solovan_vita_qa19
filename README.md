@@ -1,0 +1,1 @@
+# solovan_vita_qa19
